@@ -4,4 +4,4 @@
 2. Always be hacking
 3. ?????
 
-sick!
+sick! dope!!!!
